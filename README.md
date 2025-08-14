@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi I'm CN1:
 👑I’m currently working on ethical hacking projects and some other programming projects<br> ⌨️I’m currently learning cybersecurity primarily <br>🏀I play basketball and love movies and anime so much 
 
 
